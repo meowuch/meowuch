@@ -4,7 +4,7 @@
 <img src="https://i.pinimg.com/564x/6c/c2/d4/6cc2d47605cc88b02d4a53ae25e77e19.jpg">
 
 
-- ¯\_(ツ)_/¯ [I like coding and learning]
+- ¯\_(ツ)_/¯ [I like reading and playing games]
 
 - /ᐠ ̥  ̮  ̥ ᐟ\ฅ Discord: **S M I L E#0001**
 
