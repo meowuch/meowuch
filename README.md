@@ -6,7 +6,7 @@
 
 - ¯\_(ツ)_/¯ [I like reading and playing games]
 
-- /ᐠ ̥  ̮  ̥ ᐟ\ฅ Discord: **S M I L E#3235**
+- /ᐠ ̥  ̮  ̥ ᐟ\ฅ Discord: **.ext4**
 
 - ก₍⸍⸌̣ʷ̣̫⸍̣⸌₎ค **Still learning, lot to work on!**
 
